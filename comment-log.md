@@ -1,3 +1,65 @@
+> 7/7/2025 2:54:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltw3z4/what_do_you_think_about_most_during_the_day_and/n1urmvj) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltw3z4/what_do_you_think_about_most_during_the_day_and/n1te0hy)
+
+okay we're back to reality, top comment "dying." sanity restored. I don't know what that interaction was I guess a real person. or you paid actual money for some ai hand website...
+
+> 7/7/2025 2:15:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1ukeam) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1uk7zo)
+
+alrighty sam, I'm just gonna let this thread speak for itself
+
+> 7/7/2025 2:13:24 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1uk20x) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1ujrfv)
+
+....yes, you are. okay I am not even just trying to intimidate you rn, that string of words came out so insanely unnatural sounding, I can feel the anxiety you were having while typing it out
+
+> 7/7/2025 2:09:32 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltylv3/whats_something_youre_embarrassingly_bad_at/n1ujbt8) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltylv3/whats_something_youre_embarrassingly_bad_at/n1uikza)
+
+this doesn't work stop embarrassing yourself
+
+> 7/7/2025 2:08:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1uj2fg) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1uiept)
+
+sam you pretending to be a "drug doer" is so cringey
+
+> 7/7/2025 2:06:55 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltx2b1/what_is_the_best_job_youve_ever_had/n1uitmb) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltx2b1/what_is_the_best_job_youve_ever_had/n1tmowc)
+
+why are you trying to make Hayley think they are fucking schizophrenic?? retirement ? omg sam. when hayley upvoted me comment about my age for the first time, I was like "oh okay so she said I lied and said I was few years younger than I really am?" 
+
+the reality is so puzzling. I would've seemed just as scary either way. you made it so insanely unrealistic. you are trying to ruin hayley's trust in their own senses and perception of reality
+
+> 7/7/2025 2:02:18 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1uhx7v) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu0cij/if_you_had_500_dollars_the_rest_of_the_summer_and/n1ug0yt)
+
+you are so bad at this
+
+> 7/7/2025 1:59:53 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltynv1/what_quote_rewired_your_brain_permanently/n1uhgdw) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltynv1/what_quote_rewired_your_brain_permanently/n1tyf2u)
+
+you are not a real person with depression you are sam
+
+> 7/7/2025 1:55:46 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltuy6v/whats_something_youve_accepted_youll_probably/n1ugn4p) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltuy6v/whats_something_youve_accepted_youll_probably/n1t65en)
+
+how does writing this change anything about reality
+
+> 7/7/2025 1:23:50 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lty8m1/if_you_could_go_back_8_years_what_would_you_change/n1ua7jz) / [Context](https://www.reddit.com/r/AskReddit/comments/1lty8m1/if_you_could_go_back_8_years_what_would_you_change/n1u9n2n)
+
+I would literally buy a ticket for every single winning lottery number from every lottery in the last 8 years.this question sucks ass
+
+> 7/7/2025 1:21:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lty8m1/if_you_could_go_back_8_years_what_would_you_change/n1u9n2n) / [Context](https://www.reddit.com/r/AskReddit/comments/1lty8m1/if_you_could_go_back_8_years_what_would_you_change/n1tv7rv)
+
+ew ew ew ew please stop. stop it. I hate you. I hate that you can say things and then suddenly it's something that needs to be talked about. shut the fuck up it's impossible to guess that somebody invested in bitcoin and nvidia, especially not someone who would have been 13 at the time , and especially not somebody who has been made repeat multiple times that I think the stock market and cryptocurrency are both intensely terrible ideas and shouldn't exist and would never invest
+
+> 7/7/2025 1:18:13 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltzucg/mtf_what_are_some_some_shoes_to_buy_that_lean/n1u925u) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltzucg/mtf_what_are_some_some_shoes_to_buy_that_lean/n1u8p94)
+
+sam you are fucking stupid. this is askreddit. oh my god, do you have any common sense. do you not understand that the purpose of having multiple subreddit on this site is because each one has a very specific purpose ??
+
+> 7/7/2025 1:16:10 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltzucg/mtf_what_are_some_some_shoes_to_buy_that_lean/n1u8msp) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltzucg/mtf_what_are_some_some_shoes_to_buy_that_lean/n1u7q2e)
+
+stop calling me a fem boy
+
+> 7/7/2025 1:11:42 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltyy85/whats_something_youll_never_get_used_to_no_matter/n1u7pfa) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltyy85/whats_something_youll_never_get_used_to_no_matter/n1u2yxn)
+
+lol
+
+> 7/7/2025 12:33:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltylv3/whats_something_youre_embarrassingly_bad_at/n1tzmp2) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltylv3/whats_something_youre_embarrassingly_bad_at/n1tyxjs)
+
+sam, if I played video games you would have heard me talking about video games. why are you unable to stop repeating it despite never having heard me say a single word to you about video games. is it because you think video games are for men and you're trying to make Hayley think I am a man ? you are painfully sexist and transphobic
+
 > 7/7/2025 10:47:56 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lttta0/what_is_something_you_had_to_stop_lying_to/n1tdvfe) / [Context](https://www.reddit.com/r/AskReddit/comments/1lttta0/what_is_something_you_had_to_stop_lying_to/n1t0as1)
 
 sam this is like the third time in two days you tried to call me fat. you have really shown who you truly are. none of this is for hayley anymore, you know that hayley knows as soon as you start to live at home. you know that calling me fat or trying to make hayley question their memory of my body is not going to push them away. this is just for fun now. you can really tell too because there is a lot more racism, fat shaming, etc. things that you know wouldn't manipulate hayley. I don't think hayley would care if I were a fat mexican woman as long as they weren't hallucinating at the times they recalled thinking I was pretty, if I was a fat mexican woman, I must have been very pretty one because that's what they remember perceiving
