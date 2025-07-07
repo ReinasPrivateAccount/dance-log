@@ -1,3 +1,15 @@
+> 7/7/2025 6:55:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu8ccr/at_what_point_would_you_say_your_life_isnt_worth/n1vznk1) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu8ccr/at_what_point_would_you_say_your_life_isnt_worth/1lu8ccr)
+
+feeling that your life is worth living has almost nothing to do with reaching a point and almost everything to do with the first single digit number of years of your life. based on your childhood, the answer to this question varies from "I could get everything I want and still feel my life isn't worth living, I just don't like being. nothing is ever enough" to "there is literally nothing that could happen to me that would make me say that." there is no such thing as good or bad luck, so one especially awful thing or time in your life happening to you does not change your outlook much on the future. when someone had a good childhood something bad can happen and they will still feel that despite how bad things are right now, right now isn't forever, and it'll be okay. because you know what that feels like. if you grew up with chaos and instability, you are like "yeah that's what I expected, it never has been okay. from what I see it is never going to be okay"
+
+> 7/7/2025 6:42:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu7r9u/what_is_something_you_find_disgusting_but_oddly/n1vx5pk) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu7r9u/what_is_something_you_find_disgusting_but_oddly/n1vst4k)
+
+you wrote this like a trillion times. I have no idea why?I can't stand this
+
+> 7/7/2025 5:55:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu6qgw/whats_the_most_attractive_nonphysical_trait_in_a/n1voa8r) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu6qgw/whats_the_most_attractive_nonphysical_trait_in_a/n1vkhw5)
+
+this isnt a character trait, its a lack of a character flaw
+
 > 7/7/2025 2:54:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltw3z4/what_do_you_think_about_most_during_the_day_and/n1urmvj) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltw3z4/what_do_you_think_about_most_during_the_day_and/n1te0hy)
 
 okay we're back to reality, top comment "dying." sanity restored. I don't know what that interaction was I guess a real person. or you paid actual money for some ai hand website...
