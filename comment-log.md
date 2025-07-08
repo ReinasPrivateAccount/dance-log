@@ -1,3 +1,29 @@
+> 7/8/2025 12:09:21 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1lurkp5/im_kind_and_pretty_youre_insecure/n20abll) / [Context](https://www.reddit.com/r/sixwordstories/comments/1lurkp5/im_kind_and_pretty_youre_insecure/n203zqi)
+
+a bully ?? sam you are not a bully, most "bullies" grow out of being the way they are. what you have done has nothing to do with bullying, it is emotional abuse. it is elaborate and twisted manipulation. stop gaslighting us
+
+> 7/8/2025 9:39:02 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luopaz/if_a_religious_organization_can_endorse_political/n1zfk6a) / [Context](https://www.reddit.com/r/AskReddit/comments/1luopaz/if_a_religious_organization_can_endorse_political/1luopaz)
+
+this username makes me want to never stop vomiting. nobody in the world who actually has an understanding of what ai is has ever had a thought close to that. you are repeating things sam altman writes on twitter so that idiots invest his dying company
+
+> 7/8/2025 9:10:32 AM [Permalink](https://www.reddit.com/r/no/comments/1lunpu9/those_who_havent_had_a_gfbf_how_old_are_you/n1zahb1) / [Context](https://www.reddit.com/r/no/comments/1lunpu9/those_who_havent_had_a_gfbf_how_old_are_you/1lunpu9)
+
+every time i see you write this i start cringing sm. i am writing this comment at my own expense. you want me to write it because then you can say im reacting to what you said. but i am okay with that because i am not particularly worried about what hayley thinks reading reddit. you are screwed when you start living at home either way.
+
+i just wanna talk to you for a second sam. for me and hayley, i carry the truth. it is a very weird experience carrying the truth, because it means i know the types of things you sam, tend to lie about. sometimes it is just so hard not to point out how ,,,,dance routine-y it is. i cant help it bc i never known anybody like this before.
+
+sam, youre the only one who thinks about questions like this, and given the truth of the three people involved in this situation, the reason is very obvious. no one in the world cared that you were single for longer than other people until you gave me this weird window into your mind that hayley and everyone else will have too when you are proven to be a liar. if anything, i assumed you probably just had a higher standard of what treatment you might accept from people than me or the people i surrounded myself w/
+
+now, its really hard not to crack a smile reading these and being like ",,,,,,this is what youve been worried about as we were growing up? oh,,,,"
+
+> 7/8/2025 8:52:05 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lumtzk/whats_slowly_becoming_socially_acceptable_that/n1z7ckt) / [Context](https://www.reddit.com/r/AskReddit/comments/1lumtzk/whats_slowly_becoming_socially_acceptable_that/n1z0tcm)
+
+no. you are wrong. no one owes you literally anything. i can neglect the fuck out of my friendships sometimes as a result of my mental health. when i am asked for an explanation, i am going to reply "its my mental health" because that is true. its not an excuse for anything, if they dont want to be friends with someone that cant handle the things they need, they can stop being my friend and that is my loss as a result of my mental health.
+
+sometimes, my mental health is more important than most of the people in my life and that can make some of my friends feel like i dont care about them. it doesnt mean i dont care about them. thats it. thats the only thing i want to make clear about mental health stigma. doesnt mean anyone has to stay in a friendship where they are unhappy or made to feel neglected, but if you cant do it its no ones fault, just an unfortunate loss on both sides as a result of my mental health.
+
+you are trying to justify getting mad at people for something they cannot actually help and that they are already losing enough from when they lose you. if this were a real person i would say next time someone says that to you as an explanation for their behavior, decide if you want them in your life or not. if not, kindly let them know you dont. leave that at that. it sucks for everyone. dont say "well i think youre kinda using your mental health as an excuse to treat me poorly" unless they are asking something from you, that is you being entitled. if youre not getting what you want out of a friendship then you dont have to stay in it
+
 > 7/8/2025 8:33:43 AM [Permalink](https://www.reddit.com/r/no/comments/1lu3jfb/if_your_girlfriend_asked_you_if_shes_gaining/n1z4b2v) / [Context](https://www.reddit.com/r/no/comments/1lu3jfb/if_your_girlfriend_asked_you_if_shes_gaining/n1vlrh7)
 
 sam this crap makes no sense. do you not know anything about hayleys health ? I would definitely answer honestly and I would be very very happy and encouraging of them to gain weight. I am not worried or going to react with worry about answering that question honestly because I don't want to reinforce the idea that Hayley should be worried about gaining weight. Hayley I love you sm. half way into our friendship you had hashimoto's thyroiditis and then directly afterwards your onsent of chron's disease. I can tell you for a fact, changes in your weight change nothing other than how worried about you I am. you are so so beautiful no matter what and the way I am seeing you should not even have to be a thought in your mind when thinking of your weight. I want you to gain weight hayley. you were just as beautiful as every weight you have ever been hayley I promise and if I heard you questioning if you've gained weight I would immediately feel very happy
