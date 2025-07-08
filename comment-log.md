@@ -1,3 +1,21 @@
+> 7/8/2025 4:14:11 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1luwyhk/am_i_going_to_lose_you/n21rqh7) / [Context](https://www.reddit.com/r/sixwordstories/comments/1luwyhk/am_i_going_to_lose_you/1luwyhk)
+
+no Hayley I'm not going anywhere.we have gone through so much to get to where we are and I am not going to let go of you I promise all I want is to hold on to you
+
+we are very close to the end of our nightmare. sam wont show you her snap. once she is actually home and she continues to avoid you, my hope is that her refusal to show you the truth will be enough for you to build enough confidence in your suspicions to see for yourself on my phone. I am not going anywhere I promise hayley I love you
+
+> 7/8/2025 4:04:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luxwv0/whats_something_you_secretly_judge_people_for/n21pl0o) / [Context](https://www.reddit.com/r/AskReddit/comments/1luxwv0/whats_something_you_secretly_judge_people_for/1luxwv0)
+
+me and Hayley spent so much time openly judging people. we are very very very similar and I wasn't worried about saying something that people think "you shouldn't"
+
+> 7/8/2025 3:50:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luycf0/what_are_some_things_that_are_easy_but_not/n21mp3v) / [Context](https://www.reddit.com/r/AskReddit/comments/1luycf0/what_are_some_things_that_are_easy_but_not/n21mfsd)
+
+this is one of the most disgusting things you've ever written. I prefer hayley thinking I had a botched circumcision to them thinking I ever said a sentence remotely like this one
+
+> 7/8/2025 3:11:47 PM [Permalink](https://www.reddit.com/r/HouseMD/comments/1lrelum/why_is_he_so_dramatic_when_he_takes_pills_lmao/n21eb95) / [Context](https://www.reddit.com/r/HouseMD/comments/1lrelum/why_is_he_so_dramatic_when_he_takes_pills_lmao/n1d5akn)
+
+did you tell hayley that me and peyton are the same person
+
 > 7/8/2025 2:59:00 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luqy7h/what_are_you_in_denial_about_where_you_know_youre/n21bi07) / [Context](https://www.reddit.com/r/AskReddit/comments/1luqy7h/what_are_you_in_denial_about_where_you_know_youre/n1zx2sj)
 
 what are you referring to.why is Hayley waiting for me then
