@@ -1,3 +1,23 @@
+> 7/8/2025 2:59:00 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luqy7h/what_are_you_in_denial_about_where_you_know_youre/n21bi07) / [Context](https://www.reddit.com/r/AskReddit/comments/1luqy7h/what_are_you_in_denial_about_where_you_know_youre/n1zx2sj)
+
+what are you referring to.why is Hayley waiting for me then
+
+> 7/8/2025 2:19:14 PM [Permalink](https://www.reddit.com/r/NoStupidQuestions/comments/1ludn0p/should_i_have_confess/n212nik) / [Context](https://www.reddit.com/r/NoStupidQuestions/comments/1ludn0p/should_i_have_confess/n1y8w67)
+
+um. I didn't do that, hayley did...to be honest, I think they did even at very very beginning of our friendship before they got back w wyatt the first time. I started responding to it most in like late february '23, my peak flirty joke to Hayley was several months into our friendship when I said "im actually not friends with people who aren't attractive. like if I'm gonna be looking at them all the time🙄✋" or something along those lines. that was after a long history of me questioning whether or not hayley had been flirting with me when they were single. on the first day me and Hayley hung out alone they said I should pretend to be their gf and we can go to wyatts house and make him cry. the number of times they played "looking for a bitch cause I'm over boys." I always thought the beginning of our friendship started out flirty but also I didn't know what was going on and they were really upset about wyatt
+
+also let me just add, it was super weird to add the part where the girl in this story is literally straight. I very much knew hayleys sexuality ? what are you even talking about, just a random little paul -ifier you had to add at the end on top of it
+
+but hey at least you got our ages right
+
+> 7/8/2025 2:07:21 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lurulu/what_is_the_most_underrated_simple_pleasure/n20zymi) / [Context](https://www.reddit.com/r/AskReddit/comments/1lurulu/what_is_the_most_underrated_simple_pleasure/n20chu7)
+
+what does it mean then? "pleasure" is to enjoy something. what question did you think you were answering
+
+> 7/8/2025 1:53:55 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lutdae/what_is_your_favorite_animal/n20wxtf) / [Context](https://www.reddit.com/r/AskReddit/comments/1lutdae/what_is_your_favorite_animal/1lutdae)
+
+I like sloths. stop telling hayley they fell in love with a fake person that's a projection of what you think about your boyfriend
+
 > 7/8/2025 12:09:21 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1lurkp5/im_kind_and_pretty_youre_insecure/n20abll) / [Context](https://www.reddit.com/r/sixwordstories/comments/1lurkp5/im_kind_and_pretty_youre_insecure/n203zqi)
 
 a bully ?? sam you are not a bully, most "bullies" grow out of being the way they are. what you have done has nothing to do with bullying, it is emotional abuse. it is elaborate and twisted manipulation. stop gaslighting us
