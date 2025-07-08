@@ -1,3 +1,43 @@
+> 7/7/2025 10:33:59 PM [Permalink](https://www.reddit.com/r/whatif/comments/1lt6pdu/what_if_hell_is_real/n1x2ft4) / [Context](https://www.reddit.com/r/whatif/comments/1lt6pdu/what_if_hell_is_real/1lt6pdu)
+
+I think that when you die, every time you ever put shoes on, multiplies the amount of pain you will feel when you die by a trillion 
+
+so now that I said that, what if it's true ? nobody could say, because everyone who is dead can't tell us if it's true. I guess everyone who read this comment has to never wear shoes again just in case?
+
+literally is exactly the same thing. anyone can suggest anything. and if it's not verifiable, then you can suggest literally anything you want
+
+> 7/7/2025 10:23:34 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luby6d/who_is_someone_in_your_life_that_is/n1x0oxr) / [Context](https://www.reddit.com/r/AskReddit/comments/1luby6d/who_is_someone_in_your_life_that_is/n1wsv9v)
+
+sam do you *genuinely* believe that someone who was once a totally normal person, could be influenced by fox news so much that they become someone who would threaten their own daughter with a gun ? there is no such thing as a normal person who threatens anyone under literally any circumstance. anyone who has done that has never been a truly kind person. the summary doesn't really work because I believe at one point you would have given me the shirt off your back if I needed it. but this was your childhood. nobody can be influenced like this by fox news, the correlation between the type of people who watch fox news and them watching fox news is nothing other than the types of people who want to watch fox news choosing to watch it. it is not causing them to be that way
+
+the idea that tv could cause someone to become violent and threatening people with guns, sam this is like zero to a hundred , you need to go to sleep. this just makes literally no sense. I don't understand how you posted this without seeing that though. you sound like you have a very bad understanding of what causes people's behavior and world views. I feel like that has to be some type of denial thing relating to yourself
+
+> 7/7/2025 10:13:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lubsqz/whats_the_hardest_lesson_youve_ever_learned_from/n1wyyj3) / [Context](https://www.reddit.com/r/AskReddit/comments/1lubsqz/whats_the_hardest_lesson_youve_ever_learned_from/n1wpogr)
+
+that's not how that works. you don't not experience love. you are repeating a misunderstanding of something that is just a piece of advice. it's a lot harder to deal with the things that come with love when you are unable to love yourself
+
+> 7/7/2025 9:57:44 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lucaf8/whats_something_you_miss_about_the_old_days/n1ww88i) / [Context](https://www.reddit.com/r/AskReddit/comments/1lucaf8/whats_something_you_miss_about_the_old_days/n1wu277)
+
+why do you care so, so much that I'm not on socials? it's so weird. you make such a big deal out of it. it's not something I make a thing about me, you do that, I don't understand it. not everyone likes the same things
+
+> 7/7/2025 9:19:22 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltplln/what_do_people_lose_so_easily/n1wpio4) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltplln/what_do_people_lose_so_easily/n1s26y6)
+
+sam this is meaningless. this is literally not an answer to a question even close to the one written. this is like basically play on words at this point, the question has a meaning, what you wrote is not close to being an answer to the meaning of the question
+
+> 7/7/2025 8:52:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luawyd/whats_your_favorite_thing_about_your_boyfriend/n1wkr55) / [Context](https://www.reddit.com/r/AskReddit/comments/1luawyd/whats_your_favorite_thing_about_your_boyfriend/1luawyd)
+
+I belong to Hayley. I'm a lesbian. I have no boyfriend 
+
+what's your favorite thing about your boyfriend ? why do you spend more time thinking about me and Hayley than you do him ? I don't really understand what the differences between being around different people are , when you don't care who you are in reality and are deceiving everyone around you. like nobody means any more than anyone else to you presumably other than how much they want to be around you ?
+
+correction: how vulnerable they are to believe in your deception. that is actually what it is
+
+> 7/7/2025 8:42:09 PM [Permalink](https://www.reddit.com/r/Productivitycafe/comments/1lualxo/what_it_something_that_came_and_went_really/n1wj08s) / [Context](https://www.reddit.com/r/Productivitycafe/comments/1lualxo/what_it_something_that_came_and_went_really/n1wfxgs)
+
+buttcrackula 
+
+were you proud of that sam?
+
 > 7/7/2025 8:23:14 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu9l2g/whatre_the_best_and_worst_things_about_you/n1wfpoa) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu9l2g/whatre_the_best_and_worst_things_about_you/n1waysh)
 
 this is the first time you ever complimented yourself and I actually do kinda agree yeah that was probably hard to come up with it sounds like you spent a long time on it. in that moment something occurred to me. you are very literally applauding yourself. most of the time I'm like "sam what why are you complimenting this joke that's meant to be unfunny?" and now I'm realizing that's just because we don't have the same sense of humor.
