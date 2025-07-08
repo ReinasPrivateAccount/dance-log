@@ -1,3 +1,9 @@
+> 7/8/2025 4:45:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luzqj9/whats_something_incredibly_stupid_you_believed_as/n21yo5d) / [Context](https://www.reddit.com/r/AskReddit/comments/1luzqj9/whats_something_incredibly_stupid_you_believed_as/n21ybns)
+
+that makes no sense. literally at all, within the first several minutes after being born you have the experience of not getting things you want
+
+edit: the point im trying to make is that you should go to sleep
+
 > 7/8/2025 4:14:11 PM [Permalink](https://www.reddit.com/r/sixwordstories/comments/1luwyhk/am_i_going_to_lose_you/n21rqh7) / [Context](https://www.reddit.com/r/sixwordstories/comments/1luwyhk/am_i_going_to_lose_you/1luwyhk)
 
 no Hayley I'm not going anywhere.we have gone through so much to get to where we are and I am not going to let go of you I promise all I want is to hold on to you
