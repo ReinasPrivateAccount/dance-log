@@ -1,3 +1,31 @@
+> 7/8/2025 10:40:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv6p71/what_do_you_miss_the_most_from_your_childhood/n23ti3n) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv6p71/what_do_you_miss_the_most_from_your_childhood/n23ly1m)
+
+this comment is actually accurate. is it supposed to be embarrassing ? cool, I don't care because the types of things you think are embarrassing are often really weird and confusing
+
+> 7/8/2025 10:29:51 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv69mh/whats_the_weirdest_fetish_youve_ever_heard_of/n23rrh9) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv69mh/whats_the_weirdest_fetish_youve_ever_heard_of/n23n03e)
+
+I have no clue, you are making no sense. do you even know what youre thinking of because it sounds like random words
+
+you just became very active on this account recently. I am confident that is because you are very literally hoping I get hit by a car. I think that's funny because it's not going to happen. if it did, it doesn't change what's on your phone. then Hayley will find out for certain what you did, right after I am no longer alive to be with them. I don't know about Hayley but if something like that happened to me, I would want hate that person more than I could imagine hating nearly anyone
+
+edit: Sam do you remember that one instagram dm where I was talking about like , vengeance ? I was talking out of my ass about absolutely nothing but the part about "yeah but only to somebody who did something like insanely fucked up to me." that would be the above type thing. heartbreakingly you could wish for your best friends death but the only reason I'm not telling everyone around you what you said is because I don't want to be told im trying to harass Hayley
+
+> 7/8/2025 10:18:35 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv6gyq/why_did_you_cheat_on_your_partner/n23ptr3) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv6gyq/why_did_you_cheat_on_your_partner/n23jbn1)
+
+I've never been cheated on...would you cheat on someone because their dick was five inches , sam?
+
+> 7/8/2025 8:23:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv4rwc/say_you_just_got_diagnosed_by_a_terminal_illness/n235ebr) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv4rwc/say_you_just_got_diagnosed_by_a_terminal_illness/1lv4rwc)
+
+it depends so much on the specifics of the question. if I were gonna suffer for those whole two years, I would rather just go to party city and end it now. otherwise I would tell hayley. if I have Hayley I would be very happy for those two years. if I didn't have Hayley I would save up just enough money to buy lots of drugs and not worry about long term consequences whatsoever, every time one drug stops working, just add a new drug in to be addicted to
+
+edit: I am high as fuck and I was cracking up at the irony of "go to party city and end it now" and then I remembered that time when I made a joke about the name of juice wrlds newest album. it's called the party never ends, but...he died before it was ever released ? why did they keep the title the same...but any way I started laughing even harder because the party ends at party city
+
+> 7/8/2025 8:16:57 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1ltacs4/what_is_that_smell_that_you_love_but_is_not_a/n2348k3) / [Context](https://www.reddit.com/r/AskReddit/comments/1ltacs4/what_is_that_smell_that_you_love_but_is_not_a/1ltacs4)
+
+one time I took molly alone and I started laundry before taking it and I took it upstairs from the dryer and I was so obsessed with putting the warm clothes fresh from the laundry up to my face and smelling it and I enjoyed it so much that I posted about it on my old reddit account u/wellthatsummmokay ...fresh laundry smells very good
+
+was this question just a weird pretense to write about food ?
+
 > 7/8/2025 4:45:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1luzqj9/whats_something_incredibly_stupid_you_believed_as/n21yo5d) / [Context](https://www.reddit.com/r/AskReddit/comments/1luzqj9/whats_something_incredibly_stupid_you_believed_as/n21ybns)
 
 that makes no sense. literally at all, within the first several minutes after being born you have the experience of not getting things you want
