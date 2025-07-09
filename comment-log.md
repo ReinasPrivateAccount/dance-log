@@ -1,3 +1,7 @@
+> 7/9/2025 10:36:12 AM [Permalink](https://www.reddit.com/r/Songwriting/comments/18wh49h/weekly_lyrics_feedback_thread/n26l86b) / [Context](https://www.reddit.com/r/Songwriting/comments/18wh49h/weekly_lyrics_feedback_thread/kg1yzu0)
+
+also finally i just wanna point out how hilarious it is that someone i went to middle school with who i did not even make a point to bring up my songwriting to nearly ever, apparently not frequently enough for her to ever say anything about the fact i am a musician to hayley, is accusing me of being a show off. that is one of the most confusing things i ever experienced to be honest. this truly could not have been any more just something i like to do with my life. i didnt start to associate songwriting with validation in any form until at least '24
+
 > 7/9/2025 10:19:21 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26hpha) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26dij4)
 
 in case it matters, i just found the time i commented this song on a [weekly lyrics feed back thread](https://www.reddit.com/r/Songwriting/comments/18wh49h/comment/kg0m3a7/?utm_source=share&amp;utm_medium=web3x&amp;utm_name=web3xcss&amp;utm_term=1&amp;utm_content=share_button)
