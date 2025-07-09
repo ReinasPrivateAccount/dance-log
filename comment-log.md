@@ -1,3 +1,21 @@
+> 7/9/2025 9:59:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26dij4) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n1vlubw)
+
+sam I don't spend much time talking about music this way because I like to write music, so most feelings and thoughts that resonate with me, I have already written the most personally relatable version of.I never read this lyric before but it makes me think of when I wrote "why do I have to keep waking / the sun's too bright and my heads aching / just another day of races to run with tied together shoelaces." I feel a lot more when I read or hear that than when I do the comment you wrote. bc it's closer to the feeling I was trying to describe, and because I remember sobbing while writing it
+
+edit: a lot of lyrics I wrote , I didn't know their meaning would become even more obvious than what I knew they meant at the time, in the future. because I thought all of my life circumstances were different than they truly were. as a result, my lyrics have accidental "foreshadowing" of what I would find out was going on in the future. you were the one who tied my shoelaces together, sam
+
+> 7/9/2025 9:47:11 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lukfqz/what_normal_sound_makes_you_rage/n26b3ym) / [Context](https://www.reddit.com/r/AskReddit/comments/1lukfqz/what_normal_sound_makes_you_rage/n1yjp0p)
+
+sam this is extremely ineffective. almost every day of the beginning of me and hayleys friendship started with them waking up me up w a phone call. I literally have never woken up happier in my entire life
+
+> 7/8/2025 11:05:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv7oki/if_you_could_rename_alaska_what_would_you_call_it/n23xmlt) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv7oki/if_you_could_rename_alaska_what_would_you_call_it/n23unp4)
+
+still with that green dot huh ? 
+
+I would enjoy it if you called me on the phone and told me why you are doing this to me and Hayley. just in case it matters to you, I would be happy to talk to you honestly sam
+
+it must be a freeing thing, to have your first conversation with someone who knows who you truly are. you are unblocked
+
 > 7/8/2025 10:40:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lv6p71/what_do_you_miss_the_most_from_your_childhood/n23ti3n) / [Context](https://www.reddit.com/r/AskReddit/comments/1lv6p71/what_do_you_miss_the_most_from_your_childhood/n23ly1m)
 
 this comment is actually accurate. is it supposed to be embarrassing ? cool, I don't care because the types of things you think are embarrassing are often really weird and confusing
