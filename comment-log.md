@@ -1,3 +1,11 @@
+> 7/9/2025 12:56:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n27frrv) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n265dq3)
+
+I don't know if you have this thought genuinely but if you do, holy shit it is a projection. it's exactly the same as you saying your mom is trying to compete with you. that is actually true. I believe you may think everyone is trying to "one up" you when they are just living their lives , it's a projection of you being over sensitized to a feeling that someone is putting you in a competition
+
+> 7/9/2025 12:43:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvmvve/what_is_something_you_need_to_vent_about/n27cvw8) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvmvve/what_is_something_you_need_to_vent_about/n277yiq)
+
+my dad pays for me to eat out every single day, twice a day. if I were trying to embarrass my own self, I would be going for a more "spoiled brat" angle. that hits too close to home I guess to be embarrassing to you ? nope, I'm poor.gotta be poor. alrighty
+
 > 7/9/2025 12:23:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvkdq0/whats_a_food_you_absolutely_hate_but_everyone/n278in8) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvkdq0/whats_a_food_you_absolutely_hate_but_everyone/n2755b9)
 
 I don't think that's a thing. are you confusing the sight of a food you dislike, with the smell of it ? or is this the world's most non sense homophobia test ? I hope it's the first one. I don't want to believe anyone understands so little about the way people behave or how psychology works, that anyone literally is so stupid they actually think that disliking eggplants would be a sign of homophobia. it sounds like a joke on it's always sunny in philadelphia, sam. please, please tell me this is something you're laughing about in your free time thinking that you're tricking Hayley into believing the worst psychology anyone ever heard. you are not. they have noticed how insanely out of character you started acting that's why they are here. they have been rolling their eyes in their head every time you come up with crap like this and actually open your mouth and suggest it. it is just so absurd
