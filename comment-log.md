@@ -1,3 +1,15 @@
+> 7/9/2025 12:23:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvkdq0/whats_a_food_you_absolutely_hate_but_everyone/n278in8) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvkdq0/whats_a_food_you_absolutely_hate_but_everyone/n2755b9)
+
+I don't think that's a thing. are you confusing the sight of a food you dislike, with the smell of it ? or is this the world's most non sense homophobia test ? I hope it's the first one. I don't want to believe anyone understands so little about the way people behave or how psychology works, that anyone literally is so stupid they actually think that disliking eggplants would be a sign of homophobia. it sounds like a joke on it's always sunny in philadelphia, sam. please, please tell me this is something you're laughing about in your free time thinking that you're tricking Hayley into believing the worst psychology anyone ever heard. you are not. they have noticed how insanely out of character you started acting that's why they are here. they have been rolling their eyes in their head every time you come up with crap like this and actually open your mouth and suggest it. it is just so absurd
+
+> 7/9/2025 12:13:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvmrrn/users_of_reddit_if_you_had_to_haunt_one_person/n276axf) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvmrrn/users_of_reddit_if_you_had_to_haunt_one_person/1lvmrrn)
+
+I feel that you would haunt me sam. I feel like in your world view I took hayley away from you. you are not entitled to Hayley wanting to hangout with you over anyone else, that is all about you and Hayley, nothing to do with me. you are mad at the wrong person. this whole insane thing you did, is comparable to someone getting cheated on, then getting back with the person who cheated on them and talking shit about the person they cheated with....with the person who cheated on them
+
+> 7/9/2025 11:01:02 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvj9zo/when_was_your_first_kiss/n26qjj1) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvj9zo/when_was_your_first_kiss/n26cfbq)
+
+when did sasha become my husband. I have no memory of that. it's very weird that you used the actual age you know I had my first kiss at
+
 > 7/9/2025 10:36:12 AM [Permalink](https://www.reddit.com/r/Songwriting/comments/18wh49h/weekly_lyrics_feedback_thread/n26l86b) / [Context](https://www.reddit.com/r/Songwriting/comments/18wh49h/weekly_lyrics_feedback_thread/kg1yzu0)
 
 also finally i just wanna point out how hilarious it is that someone i went to middle school with who i did not even make a point to bring up my songwriting to nearly ever, apparently not frequently enough for her to ever say anything about the fact i am a musician to hayley, is accusing me of being a show off. that is one of the most confusing things i ever experienced to be honest. this truly could not have been any more just something i like to do with my life. i didnt start to associate songwriting with validation in any form until at least '24
