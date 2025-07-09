@@ -1,3 +1,15 @@
+> 7/9/2025 10:19:21 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26hpha) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26dij4)
+
+in case it matters, i just found the time i commented this song on a [weekly lyrics feed back thread](https://www.reddit.com/r/Songwriting/comments/18wh49h/comment/kg0m3a7/?utm_source=share&amp;utm_medium=web3x&amp;utm_name=web3xcss&amp;utm_term=1&amp;utm_content=share_button)
+
+hayley, i was stuck on you even if i could have anybody else. i know you might have doubts about that because, why. thats why i wrote it as another in a series of questions i am asking myself. there is nobody like you, which true of a lot of people, but there is an affect you had on me where i just did not believe anybody could possibly make me happier than you could
+
+edit: also, there is no way an ai song would have gotten top comment of that thread. there is also no way it could not be my song because i shared the completed version with you from my google drive. after i got that reaction i stopped posting my lyrics and started believing my music was maybe actually good and started putting most of my energy into writing
+
+edit 2: sam i didnt know that [you were a songwriter](https://www.reddit.com/r/Songwriting/comments/18wh49h/comment/kfxtmn1/?utm_source=share&amp;utm_medium=web3x&amp;utm_name=web3xcss&amp;utm_term=1&amp;utm_content=share_button). that is great for you keep up the good work sam
+
+edit 3: ai music isnt a thing, look at the trash that people write. its not a thing. if ai music was better than literally anyones music, it would be fucking everywhere
+
 > 7/9/2025 9:59:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n26dij4) / [Context](https://www.reddit.com/r/AskReddit/comments/1lu6uxv/what_lyric_from_a_song_hit_you_the_hardest/n1vlubw)
 
 sam I don't spend much time talking about music this way because I like to write music, so most feelings and thoughts that resonate with me, I have already written the most personally relatable version of.I never read this lyric before but it makes me think of when I wrote "why do I have to keep waking / the sun's too bright and my heads aching / just another day of races to run with tied together shoelaces." I feel a lot more when I read or hear that than when I do the comment you wrote. bc it's closer to the feeling I was trying to describe, and because I remember sobbing while writing it
