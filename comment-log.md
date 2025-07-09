@@ -1,3 +1,29 @@
+> 7/9/2025 2:43:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n283dqi) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n27frrv)
+
+okay actually, I like to psychoanalyze your horrible personality 
+
+sam, this thing, this "pet peeve" is actually often a red flag. not all of the time, but most of the time, when someone thinks this is happening to them, it's just because they don't converse with people in the same way most do. this is how conversations work sam, both people hear things that they relate to and makes them think of something else to build off of. it's a collaboration. is it possible that when someone hears your thought, it makes them think of something else that they think you might want to hear about, which will give you more opportunities to do the exact same thing with what they say.
+
+is it possible that what you are actually irritated by , is people switching the subject to something more closely related to themself than it is to you ? because you don't want to hear what they have to say about what you're saying to them, that's not why you're saying it. you just want someone to listen to you so you can imagine that they are adoring it as you talk. it's just,,,, literally this is how conversations work, I have never actually met this person I hear others speak of.i know people who don't care about anything you said and just ignore it and start talking about something entirely unrelated. but I never heard of somebody who couldn't help but tell a more intense version of every single story I have. when I tell a story, and then someone else starts telling a story because of it, I am very happy to hear it, that's exactly why I talked about whatever I was talking about, in case the other person has their own things in the same general area. would you rather people just ignore everything you said and talk about themself unrelatedly ? I don't think you would. I think that what most people consider to be normal back and forth conversation, you consider to be someone one upping you because you're not just talking about yourself and things only you care about the entire time
+
+> 7/9/2025 2:31:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvp5sd/whats_something_that_youre_tired_of/n280waf) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvp5sd/whats_something_that_youre_tired_of/1lvp5sd)
+
+you know, I think I am done with reddit, you just like the attention. this post is very obviously bait for me to say mean things to you. you just like that you impacted me enough to make me hate you sm. same exact thing as when I half joke that you're obsessed with me and are my biggest fan
+
+> 7/9/2025 1:43:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvoq8g/what_is_a_bad_weird_thing_about_yourself/n27q9nm) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvoq8g/what_is_a_bad_weird_thing_about_yourself/n27mn05)
+
+the fact Hayley is going to read this comment hurts me significantly more than getting hit by a car would. I really wish you did not have a platform. every single disgusting thing you ever wrote disgusts me just as much as it does hayley. it is so hard not to clarify that every time you top the bar of new level of disgusting in a comment. you fucking love this shit. it's such a win win for you.
+
+"if somebody liked xyz, they probably would be ashamed of it, so how do we know somebody likes xyz." okay, literally anything disgusting, you can say that anybody probably is hiding said disgusting secret, just because it's something disgusting you thought of that someone might hide. 
+
+"if hell exists, nobody who's dead could tell us, so it might be." but it's not because hell is just some random thing someone came up with, exact same thing with sams fucking disgusting posts. this shit makes me have meaningless "I want to kill myself rn" thoughts. it just gives me anxiety. like why is this going to have to go through the mind of the person who I care most about what they think of me
+
+> 7/9/2025 1:32:19 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvot5n/age_gap_relationships_what_do_you_consider_an/n27nu5c) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvot5n/age_gap_relationships_what_do_you_consider_an/n27nnpx)
+
+me and Hayley are the same age
+
+edit: in december, we will both be 21. hayley is very literally half a year younger than me. that is why it is so bewildering to me that your lies were such fucking overkill, it seems like an insanely weird risk to take
+
 > 7/9/2025 12:56:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n27frrv) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n265dq3)
 
 I don't know if you have this thought genuinely but if you do, holy shit it is a projection. it's exactly the same as you saying your mom is trying to compete with you. that is actually true. I believe you may think everyone is trying to "one up" you when they are just living their lives , it's a projection of you being over sensitized to a feeling that someone is putting you in a competition
