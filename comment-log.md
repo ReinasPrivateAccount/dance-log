@@ -1,3 +1,7 @@
+> 7/10/2025 12:22:05 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwg0kn/what_simple_things_that_make_you_happy_in_your_day/n2dzj63) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwg0kn/what_simple_things_that_make_you_happy_in_your_day/n2drfdi)
+
+I feel like 99% of what you do is just write things that you know factually contradict hayley's memory, because you want to keep them believing they have textbook psychosis. do not say that I am exaggerating, I am not. it's impossible to remember someone who "prefers quiet in the morning" as someone who repeatedly asked hayley keep waking me up to phone calls because I love it so much. unless the person you are accusing of having fabricated such memory has a psychotic disorder or a severe memory impairment such as dementia. everything I wrote in this comment is just a fact
+
 > 7/10/2025 12:10:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwfz8n/whats_the_best_movie_quote_you_have_ever_heard/n2dwzmg) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwfz8n/whats_the_best_movie_quote_you_have_ever_heard/1lwfz8n)
 
 I do not care about movies, I got my job at warehouse because it seemed like a really fun place to work and I ended up being right. I got my job at regal because my other job was at warehouse so I knew it would be easy to get. why won't you shut up about movies ?
