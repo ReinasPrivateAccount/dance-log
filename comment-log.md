@@ -1,3 +1,37 @@
+> 7/9/2025 8:29:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvxh0v/whats_something_you_only_learned_about_love_after/n2a123h) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvxh0v/whats_something_you_only_learned_about_love_after/n29ogog)
+
+I wasn't doing that, I wasn't sad about me and morrigan's break up by the time me and Hayley started hanging out. I was actually happy about it. I just really liked being around Hayley. before october last year, I thought this is what Hayley had done.it is still something I get afraid of actually, but they wouldn't be here if that were true, we never got to talk in depth about our feelings for each other before you stepped into things. so there must be a lot im missing. all I got to internalize was the timing and how things went immediately after that. I don't think I got enough time to feel confident that they weren't just telling me what I wanted to hear. after that one day in march of 23, we literally just never had a clear communication since it feels like to me
+
+> 7/9/2025 8:17:23 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvxyl8/whats_something_your_partner_never_said_but_you/n29yxmp) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvxyl8/whats_something_your_partner_never_said_but_you/n29t1j1)
+
+I can't even understand you anymore sam. what are you fucking talking about. this answer to this question, could have just been "a billion dollars." to "what do you want?"
+
+you sound so weird and unnatural, please go to sleep. the thing you're doing, is not hard, it's just tedious. you are making it look like it's hard rn. go to sleep
+
+> 7/9/2025 8:05:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvxw2c/whats_something_small_your_partner_does_that/n29wuzx) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvxw2c/whats_something_small_your_partner_does_that/n29tocf)
+
+omg sam you have me dead. I get that you're trying to make ridiculous people, but they end up coming off as the kind of joke where you're saying something specifically because obviously there's nobody in the world who would actually say something like that seriously
+
+> 7/9/2025 7:48:20 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvx55t/if_you_were_to_save_the_world_without_a_reward/n29tt85) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvx55t/if_you_were_to_save_the_world_without_a_reward/n29m5nj)
+
+what
+
+> 7/9/2025 6:19:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvvnb9/whats_something_you_wish_people_would_stop/n29dave) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvvnb9/whats_something_you_wish_people_would_stop/n29auiv)
+
+sam I literally have never been forced to think more about religion in my whole life before this experience. you never shut the fuck up about religion, one way or the other. I never even slightly cared about religion. where did this come from. one time I agreed with your comment on the thread about what would the world would be better off without, you wrote religion. I agreed bc I tied religion to war and I think the world would be much better off without war, and religion serves no real purpose, so naturally yeah the world would be better off without it.
+
+that was something you wrote though. I didn't randomly start talking about religion literally ever, every time I have ever talked about religion was bc you were forcing me to think about religion. this experience has been really annoying because it's just an ick concept to me that I don't enjoy thinking about or thinking about being tied to me because religion has never been part of my life in any way. I don't like being around religious people. that's the most my actions have ever reflected thinking about religion. you spend 24/7 talking about it, all I want is for you to shut up
+
+> 7/9/2025 6:09:03 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvvnb9/whats_something_you_wish_people_would_stop/n29bd14) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvvnb9/whats_something_you_wish_people_would_stop/n299qw9)
+
+why do you write these vague things. why are you making fun of people who...care about morality ?
+
+> 7/9/2025 3:12:27 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvqydu/serious_if_you_could_go_back_and_change_one/n289p6z) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvqydu/serious_if_you_could_go_back_and_change_one/n2862vr)
+
+this is for you, hayley. I am being entirely genuine, I think she's trying to tell you something. my first thought is "crocodile tears" but thats not my reaction to have. sam, my advice to you; if you really cared, you would say this out loud. Hayley knows that. what you wrote here is you giving a shot at something you would otherwise need to first confess in order to take a shot at, trying to still get the shot without actually taking any accountability or risk.
+
+I don't believe your biggest regret is messing up your relationship with your childhood best friend. that is exactly what you did intentionally. I believe that you regret fucking it up in such a way that now, everyone is about to find out who you truly are for the first time in the 21 years since you and I were born
+
 > 7/9/2025 2:43:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n283dqi) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvihwu/whats_a_personality_type_you_cant_stand/n27frrv)
 
 okay actually, I like to psychoanalyze your horrible personality 
