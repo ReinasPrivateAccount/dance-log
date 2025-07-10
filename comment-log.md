@@ -1,3 +1,21 @@
+> 7/9/2025 11:29:31 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/n2av0x6) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/n2at6vp)
+
+god sam you are living rent free in my head right now and every day it gets closer to like,,,I wish I hadn't been talking out of my ass in that conversation in middle school. were you curious, because it feels like you are trying to get me to do whatever the fuck I was talking about. now I actually want to fucking think of ways to. you made a project out of ruining my life, why shouldn't I yours. forget what I said about "it won't be in the local news," go off the grid if you want any chance at me not finding out who you are hanging out with and telling them about who you are
+
+you are fucking disturbed. sadistic. your only limit is what's legal and what you can keep a secret
+
+> 7/9/2025 11:17:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/n2at6vp) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/1lw1y4p)
+
+I would be so happy if I heard that this girl I went to my middle school with killed herself. I really would. I don't particularly care if it were to happen at this point. blame me in the suicide note for all I care. all I fucking did was exist, holy shit your world view is insane
+
+> 7/9/2025 10:59:09 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw1nhs/whats_the_no_1_reason_for_you_to_live/n2aqftd) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw1nhs/whats_the_no_1_reason_for_you_to_live/n2aq4y4)
+
+how in the fuck is that sweet, sam ? there was definitely a point where the only thing keeping me alive was the thought of the people who would still be alive dealing with my death. is that embarrassing to you ??? you're stretching this "I &lt;3 my family I make it my personality it's embarrassing" thing wayyyyy too far right now
+
+> 7/9/2025 10:30:33 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw0sg2/what_is_something_you_think_is_beautiful_about/n2alt1n) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw0sg2/what_is_something_you_think_is_beautiful_about/n2ag8o9)
+
+who are you talking about ? I mean very literally, who. what is the point in writing something that both me and Hayley know makes no sense
+
 > 7/9/2025 8:29:41 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lvxh0v/whats_something_you_only_learned_about_love_after/n2a123h) / [Context](https://www.reddit.com/r/AskReddit/comments/1lvxh0v/whats_something_you_only_learned_about_love_after/n29ogog)
 
 I wasn't doing that, I wasn't sad about me and morrigan's break up by the time me and Hayley started hanging out. I was actually happy about it. I just really liked being around Hayley. before october last year, I thought this is what Hayley had done.it is still something I get afraid of actually, but they wouldn't be here if that were true, we never got to talk in depth about our feelings for each other before you stepped into things. so there must be a lot im missing. all I got to internalize was the timing and how things went immediately after that. I don't think I got enough time to feel confident that they weren't just telling me what I wanted to hear. after that one day in march of 23, we literally just never had a clear communication since it feels like to me
