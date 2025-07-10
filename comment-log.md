@@ -1,3 +1,25 @@
+> 7/10/2025 12:10:11 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwfz8n/whats_the_best_movie_quote_you_have_ever_heard/n2dwzmg) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwfz8n/whats_the_best_movie_quote_you_have_ever_heard/1lwfz8n)
+
+I do not care about movies, I got my job at warehouse because it seemed like a really fun place to work and I ended up being right. I got my job at regal because my other job was at warehouse so I knew it would be easy to get. why won't you shut up about movies ?
+
+edit: also bc I knew parker was working at regal
+
+> 7/10/2025 11:06:19 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lweuc2/in_your_mind_what_is_a_masterpiece_of_a_movie/n2djam5) / [Context](https://www.reddit.com/r/AskReddit/comments/1lweuc2/in_your_mind_what_is_a_masterpiece_of_a_movie/n2di59f)
+
+that was in theaters while I worked at regal. I never saw it. actually the only movie I saw the whole time I worked there was when I went and saw the mario movie w justin and the gang but that was actually at warehouse
+
+> 7/10/2025 5:05:00 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw55rf/whats_one_thing_that_is_super_gross_for_you_and/n2byvqi) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw55rf/whats_one_thing_that_is_super_gross_for_you_and/n2brmmf)
+
+are you taking brand deals now to pay for your fake accounts
+
+> 7/9/2025 11:41:59 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw2ddf/whats_the_worse_kind_of_profile_picture/n2awvsa) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw2ddf/whats_the_worse_kind_of_profile_picture/n2au0cx)
+
+I thought I was an old white guy
+
+edit: I'm white most of the time anyway. based on the things you post, I'm somewhere between an 18 year old nerdy mexican gamer girl and a 74 year old white man gym bro
+
+edit 2: also I had kinda a gansta phase when I was younger
+
 > 7/9/2025 11:29:31 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/n2av0x6) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw1y4p/men_of_reddit_what_are_you_actually_thinking_when/n2at6vp)
 
 god sam you are living rent free in my head right now and every day it gets closer to like,,,I wish I hadn't been talking out of my ass in that conversation in middle school. were you curious, because it feels like you are trying to get me to do whatever the fuck I was talking about. now I actually want to fucking think of ways to. you made a project out of ruining my life, why shouldn't I yours. forget what I said about "it won't be in the local news," go off the grid if you want any chance at me not finding out who you are hanging out with and telling them about who you are
