@@ -1,3 +1,43 @@
+> 7/10/2025 4:34:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwmkm0/what_made_yall_get_rid_of_your_1st_car/n2fhb42) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwmkm0/what_made_yall_get_rid_of_your_1st_car/1lwmkm0)
+
+yeah I'm done reading this crap. it's just you writing weirdly specific (and contradictory) made up stories that have nothing to do with my life. exclusively. it's just to annoy me and confuse hayley and try to convince them that dementia is normal
+
+> 7/10/2025 4:21:19 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwmil1/whats_your_favourite_meal/n2femz6) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwmil1/whats_your_favourite_meal/n2fbcmr)
+
+my mom does not cook, the closest she ever did was getting us rotisserie chicken from costco to make in the oven
+
+edit: Sam, for a woman, you are shockingly fucking sexist. it's insane how you are unable to internalize that my dad cooks and my mom doesn't, you literally have never acknowledged a single time that my dad cooks as far as I remember
+
+> 7/10/2025 3:52:08 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwm26a/who_is_the_most_iconic_television_character_of/n2f8k2t) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwm26a/who_is_the_most_iconic_television_character_of/1lwm26a)
+
+I don't watch any of these shows
+
+> 7/10/2025 3:31:28 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwljln/what_is_your_favorite_song_of_all_time/n2f4b4n) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwljln/what_is_your_favorite_song_of_all_time/1lwljln)
+
+it is so confusing when you do this; what is the implacation ?? how are you supposed to know that my entire music taste is fake and I secretly listen to all these completely random songs that *you* picked out. it's so fucking weird. you just post terrible music to people saying what's your favorite music, like sam,, how is this embarrassing me ? it makes no sense. what is hayley supposed be thinking reading them."oh so reina must have told sam she likes all these random songs she never played in front of me"? it makes no sense whatsoever
+
+> 7/10/2025 3:03:01 PM [Permalink](https://www.reddit.com/r/mildlyinfuriating/comments/1lwibeh/took_a_friend_out_to_dinner_to_celebrate_her/n2eydgx) / [Context](https://www.reddit.com/r/mildlyinfuriating/comments/1lwibeh/took_a_friend_out_to_dinner_to_celebrate_her/n2euma1)
+
+sam you clearly know of this gif because you think it's funny, there is no way that's not why you knew of it. you are obsessed w marvel movies. so why are you like "maybe hayley will think this is cringey though" and posting it. you are the person you're talking about, you are extremely worried about what other people think of you liking certain things to the point where you'll trash what you know is your own taste because you're worried that people disagree with you
+
+this gif is funny sam. I think that responding to anything with a gif is a little bit cringey just inherently in 2025...but this gif is funny, you don't have the worry sam....
+
+also what other impolite gestures involve middle fingers other than flipping someone off
+
+> 7/10/2025 2:52:29 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw96s8/what_u_would_do_if_u_had_1_billion/n2ew523) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw96s8/what_u_would_do_if_u_had_1_billion/n2c7dtg)
+
+you very literally suggested I was 74 less than 24 hours ago, now I am not even an adult
+
+> 7/10/2025 2:19:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwjn9r/athletes_and_sports_fans_of_reddit_what_do_you/n2ep3qy) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwjn9r/athletes_and_sports_fans_of_reddit_what_do_you/1lwjn9r)
+
+I am not an athlete or sports fan?
+
+> 7/10/2025 1:40:16 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwijyd/whats_your_favorite_thing_about_life/n2eglkb) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwijyd/whats_your_favorite_thing_about_life/n2edea5)
+
+the only time I have ever heard those two words in a row before was this one episode of superstore where Amy and Laurie and I think cheyenne are going to Amy's exes house driving on the electric grocery store carts and laurie yells "have you seen the show wild hogs" but the carts are super loud and amy can't hear what she's saying and just keeps saying "what?" and I have no idea what the joke is because I never seen that before
+
+sam, it's impossible for someone to magically appear to have good taste in things while having a secret bad taste in things. if you have bad taste, you have a lack of good taste...when I think someone has good taste it's because they introduced me to something really good *I wouldn't have otherwise been able to find*
+
 > 7/10/2025 1:00:12 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwg0kn/what_simple_things_that_make_you_happy_in_your_day/n2e7n2k) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwg0kn/what_simple_things_that_make_you_happy_in_your_day/n2dzj63)
 
 Hayley this is the kind of thing that deeply concerns me. has Sam been trying to convince you this is how memory works your entire life ? because me and my therapist are often bewildered by how she gets away with passing off lies that directly contradict things you know for an actual fact. technically the only thing that needs to happen for you to be 100% certain sam is a liar, is to tell the entirety of this situation to anyone else in the world you know who isn't Sam. I am not being figurative in any way shape or form right now, she tells you things that are impossible multiple times a day
