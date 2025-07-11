@@ -1,3 +1,51 @@
+> 7/11/2025 2:08:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lxddco/what_do_you_think_is_an_underrated_skill_that/n2lb9zk) / [Context](https://www.reddit.com/r/AskReddit/comments/1lxddco/what_do_you_think_is_an_underrated_skill_that/n2l7a08)
+
+sam how is you writing things like this, supposed to be suggesting that this is a valid concern. if I saw other people who aren't you talking about this a lot, then I would be thinking oh maybe that's something to be worried about. what is the meaning of you doing it
+
+> 7/11/2025 11:48:22 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx9xyd/what_do_you_do_when_youre_absolutely_bored_out_of/n2khbgw) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx9xyd/what_do_you_do_when_youre_absolutely_bored_out_of/n2ke3x5)
+
+omg shut up I couldn't care less about video games. I haven't played a single video game in literally *years*. I could list a double digit number of things I would rather do than play literally any video game, almost every time I have been forced to play a video game I have been bored out of my mind or felt like it was a literally stressful experience
+
+> 7/11/2025 11:37:45 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx9x5w/what_was_the_most_painful_time_you_were_hit_in/n2kf0i6) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx9x5w/what_was_the_most_painful_time_you_were_hit_in/1lx9x5w)
+
+if I were you I also wouldn't respond to me wanting to help and warn other people about how you will deceive them to gain their trust and then destroy their life in the most twisted way possible, in a way that I could take legal recourse on because I really couldn't care less about you trying to hurt me once and getting you put in jail for it. that's actually what I would prefer most to happen 
+
+anyway I'm on t blockers so this doesn't hurt as much. your testicles actually shrink because they are not producing anything. so it'll be funny to watch you try ☺️
+
+> 7/11/2025 11:27:34 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx99rf/what_are_you_doing_to_pass_a_slow_boring_day_at/n2kct1o) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx99rf/what_are_you_doing_to_pass_a_slow_boring_day_at/1lx99rf)
+
+every day you spend doing this add months to amount of time I will make it my job to let every single person you find to meet let you know what you did.
+
+if I were you, I would just go home
+
+> 7/11/2025 11:06:09 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx941v/what_made_your_morning_great_today/n2k86zz) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx941v/what_made_your_morning_great_today/1lx941v)
+
+you're still posting, so hayley must still be here waiting for me. otherwise your job would be done
+
+I love you Hayley and in case you need it again I promise I'm not going anywhere. I know the truth and it's that this is almost over. I will be patient. sams only potential gain afaik would be in wearing out your patience, which seems unlikely because I think really by a certain amount of time of her being out of town (it's been almost a month since that gc message she sent that she's been away from home) that you will just take it as a confession. I love you sm
+
+> 7/11/2025 10:52:00 AM [Permalink](https://www.reddit.com/r/Life/comments/1lv9f4e/what_is_that_gift_you_like_to_receive_on_your/n2k571t) / [Context](https://www.reddit.com/r/Life/comments/1lv9f4e/what_is_that_gift_you_like_to_receive_on_your/n28wtd2)
+
+sam, Hayley, can you both watch it's always sunny in philadelphia s8e8 ? sam, reddit is the game they're playing for you. it is so funny to read things like this because I know you're writing it like "hahahahaha story about this lonely girl who never even got a bouquet of flowers, fucking destroyed, oh my god I am doing so good rn, this is fantastic"
+
+you....are one of the weirdest people I ever met sam. it's not even just this because you treat real life like a game where when you're cheating at it, you're somehow gratified by that and perceive that you're winning. how does forcing someone to call you their bestie by artificially making anyone else they could possibly call their bestie be invisible to them, make you the best, Sam ? I am asking you so seriously because I feel like based on how your life went after that, all you needed was a confidence boost, and in some twisted way forcing Hayley to be unhappy and taking away happiness they knew they were supposed to have, provided that for you??
+
+> 7/11/2025 10:41:59 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwtgyx/whats_a_secret_from_your_profession_that_everyone/n2k33b7) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwtgyx/whats_a_secret_from_your_profession_that_everyone/n2igjjz)
+
+LMFAO sam I don't know if you're recounting a real experience, but if so, please look up "benzodiazapines delusions if sobriety"
+
+that is what they do all the time, "make you feel normal" (wink wink, you're not normal)
+
+anxiety is the conscious experience of the systems of your mind that tell you "maybe don't do that." there is no such thing as a decrease in generalized anxiety without a change in behavior and disinhibition, which is an impairment. part of what that means is "am I impaired rn??" is not a worry in your mind
+
+> 7/11/2025 10:31:04 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lw93bc/if_you_had_it_your_way_what_would_be_illegal/n2k0tlz) / [Context](https://www.reddit.com/r/AskReddit/comments/1lw93bc/if_you_had_it_your_way_what_would_be_illegal/n2cbtv1)
+
+how much money did you pay to make this comment the top comment
+
+it gives you a stroke within the first sentence, almost every real person who read this comment stopped after the first sentence.
+
+I think you're basically just trying to convince hayley that reddit is an entirely different platform than it is
+
 > 7/11/2025 10:15:19 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx28a6/if_you_died_today_who_would_sit_by_your_grave_the/n2jxl1c) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx28a6/if_you_died_today_who_would_sit_by_your_grave_the/n2jd136)
 
 oh sam this makes me so sad for you to read. these comments are you being deeply deeply sad. you literally are making me want to just give you a hug right now even though most of the time I would enjoy watching you get hit by a car. sam, this stuff, is not embarrassing, it's something you and I both wish we had
