@@ -1,3 +1,41 @@
+> 7/11/2025 10:15:19 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lx28a6/if_you_died_today_who_would_sit_by_your_grave_the/n2jxl1c) / [Context](https://www.reddit.com/r/AskReddit/comments/1lx28a6/if_you_died_today_who_would_sit_by_your_grave_the/n2jd136)
+
+oh sam this makes me so sad for you to read. these comments are you being deeply deeply sad. you literally are making me want to just give you a hug right now even though most of the time I would enjoy watching you get hit by a car. sam, this stuff, is not embarrassing, it's something you and I both wish we had
+
+edit: this comment is also just you trying to tell us why it hurt so much when Hayley called somebody else their bestie
+
+> 7/11/2025 10:05:06 AM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwt1dr/whats_a_movie_so_good_no_porn_please_youll_watch/n2jvj62) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwt1dr/whats_a_movie_so_good_no_porn_please_youll_watch/n2h744o)
+
+I never watched terminator 1 or 2
+
+edit: Sam you are going to go bankrupt from fake upvotes and time off work before you figure out that you're desparately grasping for control of something you lost control over months ago
+
+> 7/10/2025 10:37:01 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwv5uf/what_kind_of_people_do_you_secretly_feel_sorry_for/n2hbmcm) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwv5uf/what_kind_of_people_do_you_secretly_feel_sorry_for/n2ha7wo)
+
+the irony in writing this is very clear and you wrote it because you want me to reply while I'm getting ready to go to sleep so you can say that's secretive or something.
+
+goodnight hayley, I love you. she also might just be trying to gaslight you. "no, I'm not delusional, I know exactly how fucked up what I did is. maybe if I demonstrate that you'll think I didn't do it"
+
+> 7/10/2025 10:27:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwuvfe/whats_the_point_of_human_life_anyway/n2ha0b4) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwuvfe/whats_the_point_of_human_life_anyway/n2h6r58)
+
+in the episode of superstore I just watched glenn who is christian (I don't even think he is catholic, which is the most bat shit insane of any sect) thinks that weed causes you to kill and eat peoples flesh. you are a horrible liar. your lies are just terrifying, that's it
+
+> 7/10/2025 6:52:04 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwo28q/whats_a_dish_you_hate_but_everyone_else_loves/n2g8h81) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwo28q/whats_a_dish_you_hate_but_everyone_else_loves/1lwo28q)
+
+spaghetti carbonara
+
+> 7/10/2025 5:32:06 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwo6cq/if_you_could_cancel_one_fear_from_your_brain/n2ft9mh) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwo6cq/if_you_could_cancel_one_fear_from_your_brain/n2fnw69)
+
+what in the fuck. I crave physical affection,I non stop talk about wanting to cuddle w Hayley.you are writing things that contradict things I say literally daily, you are just getting unrealistic as all fuck to attempt to piss me off. I thought you spent the last like almost a year making fun of me saying I just want someone to give me a hug, now you're writing this ? nobody is this horrible of a liar. hayley is not the problem you are I am not surprised they're afraid and if you didn't notice it has become very obvious to me that they are nearly as afraid of you as they are of me at this point. you literally never hangout anymore you haven't since february. february sam. I am not stupid. we have reached a tipping point where obviously, whoever is telling the truth will start to be trusted more. I am telling the truth. I am not going anywhere
+
+> 7/10/2025 5:22:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwo5of/if_you_could_be_any_cartoon_character_who_would/n2fr944) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwo5of/if_you_could_be_any_cartoon_character_who_would/n2fnkr5)
+
+15??? sam are you braindead ? this would make hayley the pedophile. I am ong so confused. what is the suggestion here, that I am 15 ? or that "I'm a trans girl" is code for "I am into underage trans girls"?? omg what the fuck is wrong with you, can you please either go home or tell Hayley you're moving
+
+what in the fuck are you doing in florida it is literally raining every single day
+
+edit: Sam there is an amount of time of you being in florida and me seeing your friends post not in florida where I will just dm one of your besties and explain what is happening
+
 > 7/10/2025 4:34:02 PM [Permalink](https://www.reddit.com/r/AskReddit/comments/1lwmkm0/what_made_yall_get_rid_of_your_1st_car/n2fhb42) / [Context](https://www.reddit.com/r/AskReddit/comments/1lwmkm0/what_made_yall_get_rid_of_your_1st_car/1lwmkm0)
 
 yeah I'm done reading this crap. it's just you writing weirdly specific (and contradictory) made up stories that have nothing to do with my life. exclusively. it's just to annoy me and confuse hayley and try to convince them that dementia is normal
